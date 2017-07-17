@@ -8,4 +8,6 @@ The above is a total lie, Ned dies at the end of Season 1 wrongfully declared a 
 
 HE GETS BEHEADED.
 
+Poor sorry man!
+
 Demonstrating unstaging.
